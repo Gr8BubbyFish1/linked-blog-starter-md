@@ -1,2 +1,2 @@
-welcome to the show
-there's fun and games abound
+Welcome to the mobile show
+There’s still fun and games trust me
